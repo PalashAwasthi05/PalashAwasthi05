@@ -1,1 +1,1 @@
-NEU cs & business admin
+head of growth @ reflex.dev
